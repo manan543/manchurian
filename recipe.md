@@ -1,0 +1,1 @@
+ For fried veg manchurian balls. ½ cup grated or finely chopped cabbage (green or red cabbage) ½ cup grated carrot. ¼ cup finely chopped capsicum (green bell pepper) ¼ cup finely chopped french beans. ¼ cup finely chopped spring onions (scallions) or onions. 2 tablespoon corn starch (also called as corn flour in india)
